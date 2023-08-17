@@ -22,7 +22,16 @@ The total supply of Teslon is limited to 127 million coins, which guarantees sta
 
 Overall, Teslon is an innovative cryptocurrency that combines blockchain technology with the support of the electric vehicle and green energy industries. Teslon offers secure, anonymous and convenient financial transactions and investments.
 
+🔗𝐓𝐡𝐞 𝐇𝐢𝐬𝐭𝐨𝐫𝐲 🌎
 
+The History (2023 — Present)
+Teslon was created in 2023 by a group of enthusiasts who were inspired by the success of Tesla and its contribution to the development of the electric car industry. They decided to create a cryptocurrency that would support this industry and help fund projects related to green energy.
 
+Currently, Teslon continues to develop and attract new users. Teslon wants to become one of the most popular and environmentally friendly cryptocurrency.
 
+Advantages of Teslon
+Teslon wants to help finance and develop renewable energy projects. This contributes to lower carbon emissions and a more sustainable future for the planet.
 
+Teslon provides users with the opportunity to invest in projects related to green energy and electric vehicles. Buying and long-term holding of Teslon can be profitable as the price of the coin can rise over time.
+
+In general, Teslon is a cryptocurrency that not only brings financial benefits, but also supports environmental projects.

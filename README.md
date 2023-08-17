@@ -36,7 +36,8 @@ Teslon provides users with the opportunity to invest in projects related to gree
 
 In general, Teslon is a cryptocurrency that not only brings financial benefits, but also supports environmental projects.
 
+
 Team
-Teslon is a decentralized development ecosystem, which means there is no “official” team or formal hierarchy. This global developer community is an unlimited pre-ocracy that anyone can participate in. Individuals and teams choose tasks for themselves and carry them out. We Collectively Achieve Rough Consensus in the Teslcoin Improvement Proposal Process. [Twitter](https://twitter.com/Teslonnet?t=GW96tSvIKyWb3Vca8NxW-w&s=09)
+Teslon is a decentralized development ecosystem, which means there is no “official” team or formal hierarchy. This global developer community is an unlimited pre-ocracy that anyone can participate in. Individuals and teams choose tasks for themselves and carry them out. We Collectively Achieve Rough Consensus in the Teslcoin Improvement Proposal Process.🌎 [Twitter](https://twitter.com/Teslonnet?t=GW96tSvIKyWb3Vca8NxW-w&s=09)
 
 

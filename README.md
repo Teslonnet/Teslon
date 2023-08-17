@@ -40,4 +40,7 @@ In general, Teslon is a cryptocurrency that not only brings financial benefits, 
 Team
 Teslon is a decentralized development ecosystem, which means there is no “official” team or formal hierarchy. This global developer community is an unlimited pre-ocracy that anyone can participate in. Individuals and teams choose tasks for themselves and carry them out. We Collectively Achieve Rough Consensus in the Teslcoin Improvement Proposal Process. 🌎 [Twitter](https://twitter.com/Teslonnet?t=GW96tSvIKyWb3Vca8NxW-w&s=09)
 
+𝐇𝐨𝐰 𝐜𝐚𝐧 𝐈 𝐣𝐨𝐢𝐧 𝐭𝐡𝐞 Teslon 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 👥
+
+There are many ways to get involved in the Teslon community! Most of the popular social media platforms have a thriving and welcoming Teslon community through which newcomers and old-timers alike can connect, discuss and share their thoughts, memes, ideas and share the joy of all things Teslon. [Twitter](https://twitter.com/Teslonnet?t=GW96tSvIKyWb3Vca8NxW-w&s=09) ([Telegram](https://t.me/teslontech)
 

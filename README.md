@@ -7,7 +7,6 @@
 
  🔗 𝐓𝐡𝐞 𝐏𝐫𝐨𝐣𝐞𝐜𝐭 🪙
 
-The Project
 
 The Teslon logo is a stylized image of the letter "T" in the form of an emblem. The letter "T" is made in a recognizable font and has arrows pointing up and down, symbolizing movement and energy. The logo is usually presented in black on a white background, but can be used in other color variations. It is one of the most recognizable and distinctive elements of the Tesla brand.
 

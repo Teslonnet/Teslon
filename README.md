@@ -25,7 +25,7 @@ Overall, Teslon is an innovative cryptocurrency that combines blockchain technol
 🔗𝐓𝐡𝐞 𝐇𝐢𝐬𝐭𝐨𝐫𝐲 🌎
 
 The History (2023 — Present)
-Teslon was created in 2023 by a group of enthusiasts who were inspired by the success of Tesla and its contribution to the development of the electric car industry. They decided to create a cryptocurrency that would support this industry and help fund projects related to green energy.
+Teslon cryptocurrency was founded in 2023 by a group of enthusiasts inspired by the success of Tesla and its contribution to the development of the electric vehicle industry. They decided to create a cryptocurrency that would support this industry and help finance green energy projects.
 
 Currently, Teslon continues to develop and attract new users. Teslon wants to become one of the most popular and environmentally friendly cryptocurrency.
 

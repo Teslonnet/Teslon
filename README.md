@@ -8,7 +8,8 @@
  🔗 𝐓𝐡𝐞 𝐏𝐫𝐨𝐣𝐞𝐜𝐭 🪙
 
 The Project
-Teslon logo is a stylized image of the letter "T" in the form of an emblem. The letter "T" is made in a recognizable font and has arrows pointing up and down, which symbolizes movement and energy. The logo is usually presented in black on a white background, but can also be used in other color variations. It is one of the most recognizable and identifying elements of the Tesla brand.t is one of the most recognizable and identifying elements of the Tesla brand.
+
+The Teslon logo is a stylized image of the letter "T" in the form of an emblem. The letter "T" is made in a recognizable font and has arrows pointing up and down, symbolizing movement and energy. The logo is usually presented in black on a white background, but can be used in other color variations. It is one of the most recognizable and distinctive elements of the Tesla brand.
 
 Teslon is a cryptocurrency created in 2023 and named after Tesla. Teslon uses blockchain technology to provide secure and anonymous financial transactions. The Teslon logo is a stylized image of the letter "T", similar to the Tesla logo, but with the addition of additional cryptocurrency-related elements.
 

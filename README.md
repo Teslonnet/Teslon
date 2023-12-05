@@ -1,5 +1,7 @@
 # Teslon!
-[](https://github.com/Teslonnet/Teslon/assets/142211890/dbdab47f-d3b0-4e58-98bf-2f282cc4f904)
+
+![image](https://github.com/Teslonnet/Teslon/assets/142211890/dba99ea2-52dd-4be5-aede-424dbb08a451)
+
 
 
 
